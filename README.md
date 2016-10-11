@@ -1,2 +1,2 @@
 # DungeonMasterCompanion
-Created by: Marco Vincenzi & 
+NON é UN CAZZo
