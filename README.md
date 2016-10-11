@@ -1,2 +1,2 @@
 # DungeonMasterCompanion
-Created by: Marco Vincenzi & 
+Created by: Marco "Zyke" Vincenzi & Gabriele "sgabruz" Visentini
